@@ -7,7 +7,7 @@ and do your best!
 
 * Pick whatever challenge you feel most comfortable with from the list
 bellow.
-* If you have any questions, reach out to `challenge{at}deepx{dot}it`
+* If you have any questions, reach out to the recruiter
 and we will gladly help.
 * Take as much time as you need and communicate as much as necessary.
 * Be aware that everything you do will be analyzed.
